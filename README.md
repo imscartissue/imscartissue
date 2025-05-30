@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/imscartissue](https://github.com/imscartissue)
 
-- 📫 How to reach me **joshthenerd77@gmail.com**
+- 📫 How to reach me (discord) **imscartissue**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
